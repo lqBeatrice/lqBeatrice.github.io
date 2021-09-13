@@ -1,1 +1,0 @@
-# lqBeatrice.github.io
